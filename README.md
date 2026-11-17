@@ -4,6 +4,12 @@
 
 c + h always !! 
 
+
+<div align="center">
+<img src="tumblr_21b85a42f478decd72380a17dd2817a1_cd442acd_250-2.gif" width="200" height="200" alt="Description">
+
+
+
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
 
@@ -19,8 +25,7 @@ c + h always !!
 
 -𝐢𝐦 𝐚 *𝐦𝐢𝐧𝐨𝐫* 𝐭𝐡𝐨,𝐢 𝐝𝐨 𝐚𝐜𝐜𝐞𝐩𝐭 𝐚𝐥𝐥 𝐚𝐠𝐞𝐬 𝐭𝐨 𝐛𝐞 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠,𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧'𝐭 𝐛𝐞 𝐰𝐞𝐢𝐫𝐝.
 
-<div align="center">
-<img src="tumblr_21b85a42f478decd72380a17dd2817a1_cd442acd_250-2.gif" width="200" height="200" alt="Description">
+
 
 
 
