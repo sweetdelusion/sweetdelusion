@@ -5,8 +5,7 @@
 c + h always !! 
 
 
-<div align="center">
-<img src="tumblr_21b85a42f478decd72380a17dd2817a1_cd442acd_250-2.gif" width="200" height="200" alt="Description">
+PLS BE MYFRIEND
 
 
 
